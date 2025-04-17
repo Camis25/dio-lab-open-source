@@ -17,4 +17,4 @@ Estou no segundo semestre da faculdade de análise e desenvolvimento de sistemas
 
 🌍 Onde me encontrar 
 - 
-- LinkedIn: https://www.linkedin.com/in/camile-vit%C3%B3ria-aa5597248?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app
+- LinkedIn: www.linkedin.com/in/camile-vitória-aa5597248
